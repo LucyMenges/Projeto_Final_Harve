@@ -34,4 +34,6 @@ Artigo Projeto Final Harve Luciana.pdf
 
 Slides Projeto Final.pdf
 
+Obrigada e boa leitura! 👋
+
 
